@@ -1,1 +1,7 @@
-## test
+## Social medias 
+
+- Twitter [@LannTy](https://www.github.com/octokatherine](https://twitter.com/LannTy)
+
+- Mail Taulant.asl92@gmx.fr
+
+<3
